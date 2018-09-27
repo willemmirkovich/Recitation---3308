@@ -1,9 +1,10 @@
-Willem Mirkovich some stuff
-Partner:
-	Daniel Taylor
+Willem Mirkovsdfiach some suff
+	Daniel Potato
 assodihggoe
 
 This might cause an error
 
 adding useless filesdljfi ashigj oi;ash
-dlkshg klasdjjkjfljdhsja;lfjio asdjklj
+asdf
+Lab j
+This might cause an erro
