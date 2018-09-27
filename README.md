@@ -1,4 +1,4 @@
-Willem Mirkovich
+Willem Mirkovich some stuff
 Partner:
 	Daniel Taylor
 
