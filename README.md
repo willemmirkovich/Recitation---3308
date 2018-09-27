@@ -1,7 +1,6 @@
-Willem Mirkovich some stuff
-Partner:
-	Daniel Taylor
+Willem Mirkovsdfiach some suff
+	Daniel Potato
 assodihggoe
-Lab 4fjdljsdoj
-
-This might cause an error
+asdf
+Lab j
+This might cause an erro
